@@ -1,0 +1,2 @@
+*Friday*
+__Saturday__
